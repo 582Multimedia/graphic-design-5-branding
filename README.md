@@ -1,6 +1,5 @@
 a 582 Multimedia resource for Branding
 
-> blockquote
 > Your brand is what other people say about you when you're not in the room
 
 ### What is Branding
