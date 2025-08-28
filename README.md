@@ -8,3 +8,7 @@ https://www.behance.net/moodboard/176895399/Branding
 
 ### How to create a good portfolio
 https://www.adobe.com/express/learn/blog/graphic-design-portfolio
+
+### Movie
+#### Abstract: The Art of Design | Paula Scher: Graphic Design
+https://www.bing.com/videos/riverview/relatedvideo?q=paula+sher+abstract+you+tube&&mid=C3B9515D421AECEC88E1C3B9515D421AECEC88E1&FORM=VAMGZC
