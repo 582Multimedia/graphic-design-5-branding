@@ -3,7 +3,7 @@ a 582 Multimedia resource for Branding
 > Your brand is what other people say about you when you're not in the room
 
 ### What is Branding
-https://www.thebrandingjournal.com/2015/10/what-is-branding-definition/
+(https://www.thebrandingjournal.com/2015/10/what-is-branding-definition/)
 
 ### What is a logo
 https://www.wix.com/blog/what-is-a-logo
