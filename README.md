@@ -12,3 +12,16 @@ https://www.adobe.com/express/learn/blog/graphic-design-portfolio
 ### Movie
 #### Abstract: The Art of Design | Paula Scher: Graphic Design
 https://www.bing.com/videos/riverview/relatedvideo?q=paula+sher+abstract+you+tube&&mid=C3B9515D421AECEC88E1C3B9515D421AECEC88E1&FORM=VAMGZC
+
+#### Nike Strategy
+https://www.youtube.com/watch?v=HkWRF23pj6M
+
+### Recommended readings
+Designing Brand Identity - Alina Wheeler • The Brand Gap - Marty Neumeier • Identity Designed: The Definitive Guide to Visual Branding - David Airey • The Design Method: A Philosophy and Process for Functional Visual Communication - Eric Karjaluoto • LOGO Modernism - Jens Müller • How to Create Better Ideas: Connecting the Left and Right Brain in the Design Process - Joost Roozekrans • The Vignelli Canon - Massimo Vignelli
+
+### Recommended websites
+www.the-brandidentity.com • www.underconsideration.com • www.identitydesigned.com • www.thebrandingjournal.com
+
+### Branding Guidelines Archive
+https://brandingstyleguides.com/
+
