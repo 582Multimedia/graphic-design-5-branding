@@ -76,7 +76,9 @@ www.the-brandidentity.com • www.underconsideration.com • www.identitydesigne
 
 ### Famous branding agency
 https://lg2.com/en/
+
 https://www.pentagram.com/
+
 https://cghnyc.com/
 
 
