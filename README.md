@@ -26,8 +26,13 @@ https://www.wix.com/blog/how-to-do-a-swot-analysis?utm_source=google&utm_medium=
 
 ---
 
-### What is a googd logo
+### What is a good logo
 https://www.youtube.com/watch?v=RBTiTcHm_ac
+
+### The 3 Rules of Good Logo Design
+https://www.youtube.com/watch?v=VnBUOjxmn1g
+
+---
 
 ### branding examples
 https://www.behance.net/moodboard/176895399/Branding
@@ -41,6 +46,11 @@ https://www.youtube.com/watch?v=1tj7Y3PR16s
 
 ### Branding Guidelines Archive
 https://brandingstyleguides.com/
+
+---
+
+### How to create a brand identity
+https://www.youtube.com/watch?v=n8KoAHCwnMQ
 
 ---
 
@@ -63,6 +73,11 @@ Designing Brand Identity - Alina Wheeler • The Brand Gap - Marty Neumeier • 
 
 ### Recommended websites
 www.the-brandidentity.com • www.underconsideration.com • www.identitydesigned.com • www.thebrandingjournal.com
+
+### Famous branding agency
+https://lg2.com/en/
+https://www.pentagram.com/
+https://cghnyc.com/
 
 
 
