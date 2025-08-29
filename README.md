@@ -26,6 +26,9 @@ https://www.wix.com/blog/how-to-do-a-swot-analysis?utm_source=google&utm_medium=
 
 ---
 
+### What is a googd logo
+https://www.youtube.com/watch?v=RBTiTcHm_ac
+
 ### branding examples
 https://www.behance.net/moodboard/176895399/Branding
 
